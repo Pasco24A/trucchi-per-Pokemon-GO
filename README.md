@@ -45,4 +45,12 @@
 
 <p>Se vuoi ottenere <strong>monete gratis</strong>, <strong>polvere di stelle infinita</strong>, <strong>biglietti raid infiniti gratis</strong> e molto altro, non perdere altro tempo. Scarica subito i nostri trucchi per Pokémon GO e inizia a dominare ogni battaglia, schiudere uova senza camminare e catturare Pokémon rari come mai prima d'ora. Cosa stai aspettando? Il potere è a portata di clic!</p>
 
-## [SCARICA I TRUCCHI POKÉMON GO](https://bit.ly/44IY6fb)
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/pasco24aita">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
